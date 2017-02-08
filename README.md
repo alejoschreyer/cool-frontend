@@ -1,1 +1,1 @@
-# osole
+# COOL TEMPLATE
